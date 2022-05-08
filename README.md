@@ -2,4 +2,3 @@
 - 👀 I’m interested in Blogging
 - 🌱 I’m currently learning programming
 - 📫 How to reach me at [Instagram](https://www.instagram.com/k.sivaranjan/)
-- 
